@@ -1,4 +1,5 @@
-# hi
+# hi im Sky 
+# hope you have a good day or night :)
 Hi im Sky im a node.js developer - i know python c c# cpp and lua
 
 i also im working on a fortnite private server called "Project Cloud"Z
