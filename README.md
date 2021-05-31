@@ -8,6 +8,4 @@ you can find the discord serer link here "https://discord.gg/MfXNpTg4EV"
 
 if you wan't to you can boost where working very hard to get a vanity url 
 
-so if you want you can boost we would love that
-
-have a good day :)
+:))))))))))))))))))))))
