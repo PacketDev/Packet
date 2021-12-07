@@ -1,11 +1,5 @@
-# hi im Sky 
+# hi im Packet 
 # hope you have a good day or night :)
-Hi im Sky im a node.js developer - i know python c c# cpp and lua
-
-i also im working on a fortnite private server called "Project Cloud"
-
-you can find the discord serer link here "https://discord.gg/MfXNpTg4EV"
-
-if you wan't to you can boost where working very hard to get a vanity url 
+Hi im Packet im a node.js developer - i know python c c# cpp and lua
 
 :))))))))))))))))))))))
